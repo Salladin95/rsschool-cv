@@ -2,7 +2,7 @@
 
 ## Contacts
 
-_E-mail:: edmondantes036@gmail.com_
+_E-mail: edmondantes036@gmail.com_
 _Telegram: @Sh_Khalid1_
 _Discord: @Khalid (@Salladin95)_
 
