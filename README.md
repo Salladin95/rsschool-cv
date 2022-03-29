@@ -1,3 +1,3 @@
 # rsschool-cv
 
-https://github-salladin95.github.io/rsschool-cv/cv
+https://salladin95.github.io/rsschool-cv/cv
